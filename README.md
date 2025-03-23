@@ -2,7 +2,7 @@
 
 ![в2](https://github.com/user-attachments/assets/a1be4ee8-6fa5-4e57-a158-dfaca4932445)
 
-<iframe width="315" height="560" src="https://www.youtube.com/embed/1_Hc1T6KXvU" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="315" height="560" src="https://www.youtube.com/embed/STG-zgPp1X" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 Растяни меха, гармошка,
 Эх, играй-наяривай,
@@ -20,7 +20,7 @@
 
 ![в2](https://github.com/user-attachments/assets/a1be4ee8-6fa5-4e57-a158-dfaca4932445)
 
-<iframe width="315" height="560" src="https://www.youtube.com/embed/Dnn6kAG2SzU" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="315" height="560" src="https://www.youtube.com/embed/SbsXg2GQK64" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 Rastyani mekha, garmoshka,
 Ekh, igraj-nayarivaj,
