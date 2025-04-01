@@ -33,5 +33,4 @@ Hot' sama ne veryu ya
 V eti sueveriya.
 
 <br><br>
-![в2](https://github.com/user-attachments/assets/a1be4ee8-6fa5-4e57-a158-dfaca4932445
-![в1](https://github.com/user-attachments/assets/ce98a7a7-65b6-4a72-af4e-321452661017)
+
